@@ -9,7 +9,10 @@
 - [Requirements](#requirements)
 
 
-Uploading Upwork AR vase placement realtime rendering advanced controls and systems unity arcore arkit computer vision touch control ar app ar.mp4…
+
+
+https://github.com/user-attachments/assets/d4278c5f-2361-49d8-85ac-14d0822c9b4e
+
 
 
 
